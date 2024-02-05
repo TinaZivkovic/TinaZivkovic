@@ -1,4 +1,4 @@
-## ✨ Welcome to my new chapter ✨
+## ✨ Welcome to my new chapter ✨ 
 
 I'm Tina - English Language and Literature student with interest in data!<br>
 
